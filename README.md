@@ -3,8 +3,8 @@
 Selamat datang di **AI Mr Budi v2**, platform game online yang menghadirkan pengalaman bermain praktis, nyaman, dan menyenangkan.
 
 ### 🔗 Akses Platform
-- 🚀 **[DAFTAR DI SINI](#)** – Mulai perjalanan gaming Anda dengan membuat akun baru.
-- 🔑 **[LOGIN DI SINI](#)** – Masuk ke akun Anda dan nikmati permainan favorit.
+- 🚀 **[DAFTAR DI SINI]([#](https://heylink.me/aimrbudi))** – Mulai perjalanan gaming Anda dengan membuat akun baru.
+- 🔑 **[LOGIN DI SINI]([#](https://heylink.me/aimrbudi))** – Masuk ke akun Anda dan nikmati permainan favorit.
 
 ### ⭐ Mengapa Memilih AI Mr Budi v2?
 
@@ -26,7 +26,7 @@ AI Mr Budi v2 hadir sebagai pilihan platform game online bagi pengguna yang meng
 
 **Siap untuk memulai?**
 
-👉 **[DAFTAR SEKARANG](#) | [LOGIN SEKARANG](#)**
+👉 **[DAFTAR SEKARANG]([#](https://heylink.me/aimrbudi)) | [LOGIN SEKARANG]([#](https://heylink.me/aimrbudi))**
 
 ---
 
